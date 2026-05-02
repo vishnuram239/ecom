@@ -23,4 +23,4 @@ Egalitarian
 Endearing 
 Gregarious 
 Assertive
-good
+good bad  attritute behaviour excellent 
