@@ -24,3 +24,10 @@ Endearing
 Gregarious 
 Assertive
 good bad  attritute behaviour excellent 
+No in alter 
+Iam afraid i cant 
+I wish i could
+I wont be able to
+I would if i could
+Audacity
+Selective  amnesia 
