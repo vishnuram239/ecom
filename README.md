@@ -1,4 +1,4 @@
-vishnu ( personal)
+no vishnu ( personal)
 A dear in the headlight 
 Spill the beans 
 Snug as a bug 
@@ -29,5 +29,5 @@ Iam afraid i cant
 I wish i could
 I wont be able to
 I would if i could
-Audacity
+Audacity.      hello world welcome
 Selective  amnesia 
